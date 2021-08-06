@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @HIMANSHU-027
-- 👀 I’m interested in Technology and Linux .. 
-- 🌱 I’m currently learning Everything ..
-- 💞️ I’m looking to collaborate on my repo ..
+- 🎓 I am currently pursing my bachelor degree in computer applications.
+- 🤓 I am hardworking and dedicated.
+- 🧬 I want to explore new things in my life.
 - 📧 himu2751@gmail.com 
 
 <!---
