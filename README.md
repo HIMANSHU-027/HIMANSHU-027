@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HIMANSHU-027
-- 🎓 I am currently pursing my bachelor degree in computer applications.
+- 🎓 I am currently pursing my master degree in computer applications.
 - 🤓 I am hardworking and dedicated.
 - 🧬 I want to explore new things in my life.
 - 📧 himu2751@gmail.com 
